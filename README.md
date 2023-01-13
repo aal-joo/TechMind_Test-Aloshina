@@ -1,0 +1,1 @@
+# TechMind_Test-Aloshina
